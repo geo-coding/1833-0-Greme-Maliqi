@@ -5,7 +5,6 @@
 2412
 2458
 Maliq (Shefki) Kosumi 1003118238
-
 Feride (Hysen) Kosumi 1171913841
 
 01834-0
